@@ -17,7 +17,7 @@
 
 #### Связь со мной
 * email: daniilpetrenko62@gmail.com
-* tg: t.me/da_petrenko
+* tg: [t.me/da_petrenko](https://t.me/da_petrenko)
 
 
 <!--
